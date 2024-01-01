@@ -7,10 +7,7 @@
 my name is rhssh or al. i really like tech and linux (i am so smart..........)  
 
 
-## Things I like
-
-- HTML 
-- Open Source Software
+im currently working on my webiste, meanwhile learning C
 
 
 <!--
