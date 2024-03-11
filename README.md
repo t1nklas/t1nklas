@@ -6,8 +6,7 @@
 
 my name is rhssh or al. i really like tech and linux (i am so smart..........)  
 
-
-im currently working on my webiste, meanwhile learning C
+hmu
 
 ## website
 
