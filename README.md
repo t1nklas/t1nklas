@@ -1,6 +1,6 @@
 # hey there
 
-<img src="https://cdn.discordapp.com/attachments/1169673041433853952/1190315445992034455/drWBy6B.png?ex=65a15aa5&is=658ee5a5&hm=0d747259bd9d2869d5d42c7cafbc7c5de82ca69f8bad01cfd183a02a4ba161df&" alt=":)">
+<img src="https://cdn.discordapp.com/attachments/1180812646744866816/1214893185772552192/Snapchat-837458789.jpg?ex=6603fef3&is=65f189f3&hm=8c08ed24668234cc95477bd6b62c58d49babb0dfe9ff35e20f937906499d6397&" alt=":)">
 
 ## about me
 
