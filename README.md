@@ -4,13 +4,13 @@ no image for now :(
 
 ## about me
 
-my name is rhssh or al. i really like tech and linux (i am so smart..........)  
+my name is t1nklas or al. i really like tech and linux (i am so smart..........)  
 
 hmu
 
 ## website
 
-https://rhssh.xyz/
+https://t1nklas.lt/
 
 <!--
 Here are some ideas to get you started:
