@@ -4,9 +4,7 @@ no image for now :(
 
 ## about me
 
-my name is t1nklas or al. i really like tech and linux (i am so smart..........)  
-
-hmu
+my name is t1nklas or al. i really like tech and linux (i am so smart..........)
 
 ## website
 
